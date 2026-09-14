@@ -1,1 +1,1 @@
-# -_-_10-
+#Artamonov_Vladislav
